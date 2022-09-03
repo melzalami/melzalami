@@ -8,13 +8,13 @@
 - 🤔 I'm currenly learning php and ruby
 - 🤝 I'm looking to collaborate on video game projects.
 - 🙋 Ask me about ANYTHING!
-- ♀️ Pronouns: She/Her/They
+- ✨ Pronouns: She/Her/They
 - 💫 Fun fact: I can speak French and English fluently.
 
 
 ### Talk with me, I'd love to talk!
-I'm on [Twitter](https://twitter.com/melzalami)
-
+Follow me on [Twitter](https://twitter.com/melzalami)
+<br />
 Add me on Discord: melzalami#8301
 
 <br />
